@@ -1,30 +1,12 @@
 # Do Now
 
-- Tire Rotation
-- Build Refridgerator Soda Dispenser
+## Hi Forrest, I will Keep this updated for you lol
+
 - Clean Living Room
 - Make Hue Lights Smart
-- Order Mom and Dad iPhones
-- vacuum living room
-- put away roller skates
-- put away clothes on bed
-- build steel shelf
 - put away table leaves in the living room
-- put away books and organize them
-- reading magic tree house merlin missions 2
-- Get out of debt on Prime Card
-- Get out of debt on apple card
-- put away ryobi tools
 - put away kitchen dishes
 - hang sunglass holder
-- Install Home pot holder
+- Install Home pod holder
 - make apple tv sound go to homepod mini in the living room
-- put away indian dress
-- clean truck
 - put office chair in the study
-- put the foot rest in the study
-- get soda streams
-- put away puzzel board
-- put away video game consols
-- buy blanket for hunny in the truck
-- file for insurance
